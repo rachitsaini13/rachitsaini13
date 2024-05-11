@@ -7,7 +7,7 @@
 
 - 👨‍💻 All of my projects are available at [https://rachitsaini.carrd.co/](https://rachitsaini.carrd.co/)
 
-- 📝 I regularly write articles on [Medium: https://medium.com/@rachitsaini](Medium: https://medium.com/@rachitsaini)
+- 📝 I regularly write articles on (Medium: https://medium.com/@rachitsaini)
 
 - 📫 How to reach me **rachitsaini1303@gmail.com**
 
